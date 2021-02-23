@@ -153,3 +153,5 @@ TOP18：新洋丰（000902），农资必需消费品复合肥龙头，总市值
 
 鹏华基金2月8日宣布获批全市场首只化工ETF，不过，该基金正式进入市场发行、运作尚需时日。而化工股被基金经理打入冷宫数年后，化工股配置比例在基金持仓中的比重，持续环比大幅上升，成为基金主要加仓对象。作为A股唯一的主动偏股型化工基金，易方达基金公司旗下一只all in化工的基金，新年开年以来的收益率遥遥领先
 
+http://mp.weixin.qq.com/s?__biz=MzIxMTY4MjY2MA==&mid=2247488042&idx=1&sn=cd59099252b3ecef15b5be895621e226&chksm=9750c621a0274f37ac6814028c962247bd8db7c0ec0509e988d11e493610f207afae04c4cb6d&mpshare=1&scene=24&srcid=0223Sojjx8lSy2yJSf7RCGr1&sharer_sharetime=1614091642244&sharer_shareid=287173659e724d5ee4e17f6e0a6a16ce#rd
+

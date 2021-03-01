@@ -8,5 +8,5 @@
 [第5课-第1买点](https://v.qq.com/x/page/t0712zeoony.html)
 [第6课-第2买点](https://v.qq.com/x/page/v0741ekyyfl.html)
 [第7课](https://v.qq.com/x/page/v0753akzw2o.html)
-
+[第8课](https://v.qq.com/x/page/r0779fp4r2p.html)
  

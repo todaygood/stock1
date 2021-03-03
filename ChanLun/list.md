@@ -10,6 +10,7 @@
 [第7课](https://v.qq.com/x/page/v0753akzw2o.html)
 [第8课](https://v.qq.com/x/page/r0779fp4r2p.html)
 
+[红师论缠-教学](https://mp.weixin.qq.com/mp/homepage?__biz=MzU2MDE2NTQ5Nw==&hid=1&sn=e1d29a9c769fed7ed9ad5615127f28f7&scene=18&uin=&key=&devicetype=Windows+10+x64&version=63010043&lang=zh_CN&ascene=7&fontgear=3)
 
 ## 择时操作级别
 
